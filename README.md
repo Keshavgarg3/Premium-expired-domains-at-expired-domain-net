@@ -1,4 +1,4 @@
-# Get Exclusive Quality Expired domains at expired domain net
+# Get Exclusive Quality Expired domains from expired domain net
 buy exclusive quality expired domains with this extensive expired domain research method
 ### Expired Domains: A Comprehensive Guide
 
